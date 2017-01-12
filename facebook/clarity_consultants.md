@@ -7,7 +7,7 @@ js, html, css
 3 mon contract - clarity employment
 
 ariela t
-and
+and (recruiter names in the email)
 
 jane wachnin
 
